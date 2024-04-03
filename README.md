@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello! bucz was always here lol.
+Aspiring (shabu dealear)
 
 
 # 💻 Tech Stack:
