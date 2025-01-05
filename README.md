@@ -1,5 +1,5 @@
 # 💫 About Me:
-Aspiring (shabu dealear)
+Gwapo lang ang ambag sa lipunan 
 
 
 # 💻 Tech Stack:
