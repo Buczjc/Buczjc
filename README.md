@@ -1,5 +1,4 @@
-# 💫 About Me:
-Gwapo lang ang ambag sa lipunan 
+
 
 
 # 💻 Tech Stack:
